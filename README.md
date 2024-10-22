@@ -3,4 +3,4 @@ latihan karawang
 
 Pelatihan di karawang chan 
 Penambahan 2
-penambahan 3
+penambahan 31
